@@ -6,4 +6,4 @@
 - We can be reached via our website : premiernotch.com.ng or mail : mailme@gmail.com likewise contact us : 07061489644
 premiernotch/premiernotch : The creation of  *"Premier Notch"* as a great company  is a strategic masterpiece, combining elements of elegance, diversity, and efficiency to orchestrate a grand-scale success story that unfolds with precision and grace. 
 - Motto : Where quality meets elegance - Premier Notch your pinaccle of perfection 
-- Remain blessed as we patronize us 🙏🙏
+- Remain blessed as you patronize us 🙏🙏
